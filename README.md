@@ -1,0 +1,1 @@
+This website contains my personal information and portfolio, intended for public viewing. Please note that all information provided is confidential and should be used solely for business-related purposes. Thank you for understanding
